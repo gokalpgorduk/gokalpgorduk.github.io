@@ -1,0 +1,1 @@
+# gokalpgorduk.github.io
